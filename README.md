@@ -1,1 +1,1 @@
-# Syper project in GitHub kik
+# Syper project in GitHub
