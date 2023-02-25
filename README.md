@@ -1,1 +1,1 @@
-# Synergy_GIT_Les5
+# Syper project in GitHub kik
